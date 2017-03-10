@@ -6,3 +6,5 @@ let's organise it with github!!!
 GREAT! I look forward to it
 
 (don't let Grant make the playlist)
+
+I think we should get a bouncy house!
